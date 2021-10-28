@@ -26,6 +26,6 @@ No more turning to paid sites. Get all your work done absolutely free.
 3. [Suhani Singhal](https://github.com/suhani3502)<br>
 4. [Jahnavi Chauhan](https://github.com/jkc1-4)<br>
 
-## [Click Here](https://nandiniinj.github.io/Resource-Lab/) to view the Project.
+## [Click Here](https://nandiniinj.github.io/Resources/) to view the Project.
 
 ### [Click Here](https://screenrec.com/share/FN7v8Y4PUp) to view the Expanation Video
