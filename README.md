@@ -29,3 +29,4 @@ No more turning to paid sites. Get all your work done absolutely free.
 ## [Click Here](https://nandiniinj.github.io/Resources/) to view the Project.
 
 ### [Click Here](https://youtu.be/up_V_WhAz6s) to view the Expanation Video
+### [Click Here](https://drive.google.com/drive/folders/1OpQEhy5wr68w3C-iKECZE3seJbt9bp49?usp=sharing) to view the Expanation Presentation
